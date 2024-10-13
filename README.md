@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Samruddhi Bhosale
 - 🌱 I’m currently pursuing B.Tech in Information Technology...
-- 📫 How to reach me ...samruddhi.smb@gmail.com
+- 📫 How to reach me ... samruddhi.smb@gmail.com
 - 😄 Pronouns: ...she/her
 
 
